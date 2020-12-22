@@ -1,1 +1,1 @@
-# google-homepage
+Hey this is Alec out here. I am trying to become a computer programmer so that I can make lots of money. I am currently really enjoying it and am getting into a good work flow. I am now commmitting myself to a 55 hour work week, in hopes that I will quickly be able to learn how to code in various languages. I am going to start networking with Sewanee Alumn to find me a job in one or two months. I have high hopes, and I am ready to go full force into this adventure. 
